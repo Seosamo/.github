@@ -1,1 +1,1 @@
-# Welcome to Our Organization 👋
+Welcome to Our Organization 👋
