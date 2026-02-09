@@ -21,5 +21,6 @@
  ⠀⠀⠀⠈⠙⠓⠀⠀⠀⣴⣿⣧⣼⣽⣷⣾⣟⠉⠉⠒⠒⠊⠀⠀⠀⡇⠀⠀⠀⠀⠀⠀⢀⠇⠀⠀⠀⠀⢀⣀⠤⡤⠵⠊⢸⠀⡠⠤⠤⠐⠉⠀⠀⠀⠀⣷⣿⢿⡇<br>⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⣠⣾⣿⣿⣿⣿⣿⣿⣿⣿⣧⡀⠀⠀⠀⠀⣠⠎⠀⠀⠀⠀⠀⠀⢀⠃⠀⢀⣀⣀⣀⣠⣀⣀⣿⠉⠉⠉⠉⠀⠀<br>⠀⠀
 ⠀⠀⠀⠀⠀⠀⢀⠜⣽⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣷⣀⡤⠖⠋⠀⠀<br>⠀⠀
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<Sujeong Lee (Ms)>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<Hayoung Lee (Ms)> 
 
 (∩ ͡° ͜ʖ ͡° )⊃━☆ﾟ 안녕하세요 기생충의 믿음의 벨트 마냥 서로를 끌어들여 형성된 팀 서사모 입니다 ╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
